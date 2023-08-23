@@ -35,4 +35,3 @@
 ![탄소배출량 지도 발표자료 rev1 5 pptx-31](https://github.com/Paradoxlover9417/Carbon/assets/25617128/ae3500f1-c0a3-4f97-be57-16b0381dee54)
 ![탄소배출량 지도 발표자료 rev1 5 pptx-32](https://github.com/Paradoxlover9417/Carbon/assets/25617128/dbdc303b-f2b1-471d-931f-4a70c39e1a5f)
 ![탄소배출량 지도 발표자료 rev1 5 pptx-33](https://github.com/Paradoxlover9417/Carbon/assets/25617128/1639bb89-1d71-466c-b5ed-329548845524)
-![탄소배출량 지도 발표자료 rev1 5 pptx-34](https://github.com/Paradoxlover9417/Carbon/assets/25617128/db1b3198-cd13-4aeb-9fde-26d918957b3e)
